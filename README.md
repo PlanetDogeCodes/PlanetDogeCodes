@@ -1,4 +1,4 @@
-ADHD teenager making funky fun projects
+ADHD 14-year-old making funky fun projects.
 Owner of the 1b2t eaglercraft server and creator of the most popular cloaked vanilla Eaglercraft Launcher.
 
 
